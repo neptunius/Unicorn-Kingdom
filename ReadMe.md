@@ -8,6 +8,7 @@ A young boy wanders into the back of a zoo and discovers a hidden gate that has 
 
 - Unicorn King: Johnny Depp
 - Young Boy: Jonah Hill
-- Zookeeper: Steve-O
+- Zookeeper: Dave Franco
 - Scary Giraffe: Dwayne "The Rock" Johnson
-- A Ghost: Betty White
+- Friendly Ghost: Betty White
+- Courageous Lion: Steve Erkel
